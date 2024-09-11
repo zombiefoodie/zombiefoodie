@@ -1,6 +1,6 @@
  Hi, I’m @zombiefoodie
 -  I’m interested in darknet and launch browsers, etc
--  proffessional doxxer
+-  
 
 -  Pronouns: he/she
 - discord: kkaoru_. 
